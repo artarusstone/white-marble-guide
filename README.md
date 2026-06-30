@@ -100,7 +100,7 @@
 
 Каталог белого мрамора Artarus Stone:
 
-[Белый мрамор – слэбы и плитка](https://artarusstone.ru/product-category/marble/white-marbles/)
+[Слэбы и плитка из белого мрамора](https://artarusstone.ru/product-category/marble/white-marbles/)
 
 ---
 
